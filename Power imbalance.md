@@ -1,3 +1,3 @@
-pred/prey? size difference? Level of consent?
+pred/prey? size difference? Level of consent? #pred/prey #sizedifference #consent
 
 Is there any power imbalance at all, or just power differences? Power imbalance is not an inherent part of it. This topic is explored very interestingly in a (partially) vore comic i read a while back and re-read today because im like fuck that's so interesting. i forgot what its called, i'll have to find it again. its by CaptainZepto but they go by a new name now ill have to check that too. basically big creature small witch rat thing got spells n shit. you get what happens. but then big creature is like i dont wanna die by the hands of evil fucks can u please take my soul. and she does it and then his sou lis a little ball and she eats the little ball. and they like. magic merge and become one, [[Comfort of being eaten]]: becoming part of someone. [[Comfort of being eaten]]: comfort in death.
