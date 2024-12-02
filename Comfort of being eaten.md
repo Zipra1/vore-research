@@ -1,1 +1,1 @@
-warm and soft #comfort #appeal? noises? being made into food: [[Death and vore]]/death cope #death? Intimacy? becoming part of someone? [[Appeal in disgust]] #disgust? Comfort in death: lovingly suicidal? #love
+warm and soft #comfort #appeal? noises? being made into food: [[Death and vore]]/death cope #death? Intimacy? becoming part of someone #merge? [[Appeal in disgust]] #disgust? Comfort in death: lovingly suicidal? #love 
