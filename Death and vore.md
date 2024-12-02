@@ -1,1 +1,2 @@
+#precise
 how the concept of vore copes with death/vore as a coping mechanism for death. this is a chicken and egg scenario, disregard which comes first as it is not important (at least not in the current vision)
