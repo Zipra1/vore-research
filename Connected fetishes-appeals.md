@@ -5,3 +5,4 @@
 - Control play? #control
 - Non-standard orifices?
 - Maw/mouth? #maw #mouth
+- Teeth? #teeth 
