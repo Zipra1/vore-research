@@ -5,4 +5,4 @@ relating too [this](https://www.youtube.com/watch?v=GZg_36utl2w&ab_channel=CJThe
 under this lens, vore can be seen as:
 - Empowering
 - Interesting, existentially. In a god outside-in of god way.
-- A way to entirely disconnect f
+- A way to entirely disconnect from life: *sleep?* #sleep
