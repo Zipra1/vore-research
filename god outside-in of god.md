@@ -1,6 +1,6 @@
 #precise #existential 
 relating too [this](https://www.youtube.com/watch?v=GZg_36utl2w&ab_channel=CJTheX) video by cj the x. more specifically the existential kink thing.
-*Vore is a fantasy kink. Given it is impossible in reality, it exists only in the mind. Vore turns you into God, and God is super fucking into this. It's not weird, it's God playing with Himself and His toys that he creates to feel both pleasure and pain in equal proportion. A deserved break from the monotony of life.* #god `"pleasure and pain in equal proportion" is a corru quote from God. They could be good imagery for that.`
+*Vore is a fantasy kink. Given it is impossible in reality, it exists only in the mind. Vore turns you into God, and God is super fucking into this. It's not weird, it's God playing with Himself and His toys that he creates to feel both pleasure and pain in equal proportion. But in His new world, pain becomes pleasure. And when God annihilates his new world, with Him comes the pearl at the center of the universe.* #god `"pleasure and pain in equal proportion" is a corru quote from God. They could be good imagery for that.`
 
 *as an all powerful being, i choose to be an all-powerful being.* : the urge to
 
