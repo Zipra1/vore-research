@@ -6,3 +6,5 @@ under this lens, vore can be seen as:
 - Empowering
 - Interesting, existentially. In a god outside-in of god way.
 - A way to entirely disconnect from life: *sleep?* *is this a relation to death, or is it merely coincidence that death is also disconnect and a part of some vore?* #sleep #death
+
+When the God inside of God is empowered `in this case, via creating and consuming vore` 
