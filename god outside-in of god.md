@@ -17,6 +17,9 @@ Vore is used to turn pain into pleasure, while pleasure stays pleasure.. When yo
 
 Can this concept be defined as divination, **"the practice of seeking knowledge of the future or the unknown by supernatural means."**? Something similar?
 
+
+
+
 ```
 i dont look at vore because i like to look at vore
 i look at vore to extract artistic meaning from what i have, right now, deemed to be high art.
@@ -25,3 +28,4 @@ and now, i look at vore, because i like to look at vore.
 ```
 15:40 "My mission in life is to stretch to the earth and learn to eat an apple and just like that for that." : Is vore a good "first step" for getting to this? Maybe even *the step*?
 17:15 "Life is action, and life is good only when action is a joy."
+If the project ends up being about this, that might be a great way to end it.
