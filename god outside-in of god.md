@@ -16,3 +16,8 @@ When the God inside of God is empowered `in this case, via creating and consumin
 Vore is used to turn pain into pleasure, while pleasure stays pleasure.. When you enter this imaginative world, you can bring back that way of existing, making every pain a bit more bareable. `I dont draw vore art because I am sexually interested (no its not just repressed i prommies). Is this why?`
 
 Can this concept be defined as divination, **"the practice of seeking knowledge of the future or the unknown by supernatural means."**? Something similar?
+
+```i dont look at vore because i like to look at vore
+i look at vore to extract artistic meaning from what i have, right now, deemed to be high art.
+and then i extract that artistic meaning.
+and now, i look at vore, because i like to look at vore.```
