@@ -23,4 +23,4 @@ i look at vore to extract artistic meaning from what i have, right now, deemed t
 and then i extract that artistic meaning.
 and now, i look at vore, because i like to look at vore.
 ```
-
+15:40
