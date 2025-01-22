@@ -17,7 +17,10 @@ Vore is used to turn pain into pleasure, while pleasure stays pleasure.. When yo
 
 Can this concept be defined as divination, **"the practice of seeking knowledge of the future or the unknown by supernatural means."**? Something similar?
 
-```i dont look at vore because i like to look at vore
+```
+i dont look at vore because i like to look at vore
 i look at vore to extract artistic meaning from what i have, right now, deemed to be high art.
 and then i extract that artistic meaning.
-and now, i look at vore, because i like to look at vore.```
+and now, i look at vore, because i like to look at vore.
+```
+
