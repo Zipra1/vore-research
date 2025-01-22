@@ -23,4 +23,4 @@ i look at vore to extract artistic meaning from what i have, right now, deemed t
 and then i extract that artistic meaning.
 and now, i look at vore, because i like to look at vore.
 ```
-15:40
+15:40 "My mission in life is to stretch to the earth and learn to eat an apple and just like that for that." : Is vore a good "first step" for getting to this? Maybe even *the step*?
