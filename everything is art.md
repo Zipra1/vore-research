@@ -2,4 +2,4 @@ AI art is art, as a whole. It's beautiful that someone decided to spend billions
 
 Everything is beautiful, when you can look at it like this. When the world before you is a canvas, everything is art.
 
-Meditation 
+Meditation, to me, is a way to disconnect yourself from the world and all your problems. and just. Be in the moment. For a moment. Meditation, without sitting and doing nothing, is this whole concept.
