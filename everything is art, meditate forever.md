@@ -5,4 +5,4 @@ Everything is beautiful, when you can look at it like this. When the world befor
 
 Meditation, to me, is a way to disconnect yourself from the world and all your problems. and just. Be in the moment. For a moment. Meditation, without sitting and doing nothing, is this whole concept. #meditation
 Vore can be a form of forced meditation, see [[god outside-in of god#meditation]]. a good way to get into it, maybe.
-Looking at everything as if it were art is, in my opinion, a form of constant meditation. It forces you to take a step back. Take it in. Stop thinking. And just be in the moment.
+Looking at everything as if it were art is, in my opinion, a form of constant meditation. It forces you to take a step back. Take it in. Stop thinking. And just be in the moment. Thinking about it as if it were art, is probably not meditation. But it sure is fun. And has the function of making you take a step back from everything, to see on the bright side of things. Vore has made me a more positive person. What weird shit is gonna make you happier?
