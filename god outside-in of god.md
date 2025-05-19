@@ -7,7 +7,7 @@ relating too [this](https://www.youtube.com/watch?v=GZg_36utl2w&ab_channel=CJThe
 under this lens, vore can be seen as:
 - Empowering
 - Interesting, existentially. In a god outside-in of god way.
-- A way to entirely disconnect(reconnect to the existential?) from life: *sleep?* *is this a relation to death, or is it merely coincidence that death is also disconnect and a part of some vore?* #sleep #death : Meditation!! This is meditation! Disconnecting from the worries and struggles of real life taken a step further: Not just living in the moment, but living in the moment of a world that doesn't even have worries and struggles.
+- A way to entirely disconnect(reconnect to the existential?) from life: *sleep?* *is this a relation to death, or is it merely coincidence that death is also disconnect and a part of some vore?* #sleep #death : Meditation!! This is meditation! Disconnecting from the worries and struggles of real life taken a step further: Not just living in the moment, but living in the moment of a world that doesn't even have worries and struggles. #meditation [[everything is art]]
 
 When the God inside of God is empowered `in this case, via creating and consuming vore media`, does this loop back around to God or is a new God created? ie. Is this a way to disconnect, or reconnect? Is reconnection psychologically valid?
 	 current conclusion: a new god is created, the disconnect life creates from the existential is doubled in the new. this conclusion allows for the existence of [[god outside-in of god#Pleasure Extraction]]
