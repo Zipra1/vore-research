@@ -17,7 +17,7 @@ When the God inside of God is empowered `in this case, via creating and consumin
 # Pleasure Extraction
 Vore is used to turn pain into pleasure, while pleasure stays pleasure.. When you enter this imaginative world, you can bring back that way of existing, making every pain a bit more bareable. `I dont draw vore art because I am sexually interested (no its not just repressed i prommies). Is this why?`
 
-Can this concept be defined as divination, **"the practice of seeking knowledge of the future or the unknown by supernatural means."**? Something similar?
+Can this concept be defined as divination, **"the practice of seeking knowledge of the future or the unknown by supernatural means."**? Something similar? magic?
 
 
 
